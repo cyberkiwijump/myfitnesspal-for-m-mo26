@@ -1,4 +1,4 @@
-# 
+# MyFitnessPal for macOS instant Plugin: social-sharing & custom-workouts is the best MyFitnessPal for macOS plugin, featuring social-sharing and custom-workouts. Powerful,
 
 
 
